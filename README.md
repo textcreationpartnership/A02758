@@ -36,362 +36,204 @@ This keyboarded and encoded edition of the
 
 #####Front#####
 
-1. Of the Firſt BOOKE.
+1. TO THE RIGHT HONORABLE, EDVVARD LORD MONTAGVE, BARON OF BOVGHTON, ALL HEALTH AND HAPPINESSE.
 
-    _ Queſtions diſcuſſed and handled in this Firſt BOOKE, with relation to the Chapters wherein they are contained.
+1. The Licence from the Colledge.
 
-    _ Queſtions diſcuſſed and handled in this ſecond BOOKE.
+1. THE CONTENTS OF THE CHAPTERS OF THIS VVHOLE TRACTATE.
 
-    _ Queſtions diſcuſſed and handled in this Third BOOKE.
+    _ Of the Firſt BOOKE.
 
-1. Contents of the Chapters of the Second BOOKE.
+      * Queſtions diſcuſſed and handled in this Firſt BOOKE, with relation to the Chapters wherein they are contained.
 
-    _ Queſtions diſcuſſed and handled in this Firſt BOOKE, with relation to the Chapters wherein they are contained.
+    _ Contents of the Chapters of the Second BOOKE.
 
-    _ Queſtions diſcuſſed and handled in this ſecond BOOKE.
+      * Queſtions diſcuſſed and handled in this ſecond BOOKE.
 
-    _ Queſtions diſcuſſed and handled in this Third BOOKE.
+    _ Contents of the Chapters of the Third BOOKE.
 
-1. Contents of the Chapters of the Third BOOKE.
+      * Queſtions diſcuſſed and handled in this Third BOOKE.
 
-    _ Queſtions diſcuſſed and handled in this Firſt BOOKE, with relation to the Chapters wherein they are contained.
-
-    _ Queſtions diſcuſſed and handled in this ſecond BOOKE.
-
-    _ Queſtions diſcuſſed and handled in this Third BOOKE.
+1. The Introduction to this VVHOLE DISCOVRSE; VVherein is detected the lawleſſe intruſion of many ignorant Perſons upon the profeſsion of PHYSICKE.
 
 #####Body#####
 
-1. CHAPTER I.
+1. THE DIET OF THE DISEASED. THE FIRST BOOKE.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAPTER I.
 
-1. CHAP. II.
+    _ CHAP. II.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. III.
 
-1. CHAP. III.
+    _ CHAP. IIII.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. V.
 
-1. CHAP. IIII.
+    _ CHAP. VI.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. VII.
 
-1. CHAP. V.
+    _ CHAP. VIIJ.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. IX.
 
-1. CHAP. VI.
+    _ CHAP. X.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. X.
 
-1. CHAP. VII.
+    _ CHAP. XIJ.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. XIIJ.
 
-1. CHAP. VIIJ.
+    _ CHAP. XIV.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. XV.
 
-1. CHAP. IX.
+    _ CHAP. XVI.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. XVIJ.
 
-1. CHAP. X.
+    _ CHAP. XVIII.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. XIX.
 
-1. CHAP. X.
+    _ CHAP. XX.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. XXI.
 
-1. CHAP. XIJ.
+    _ CHAP. XXII.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. XXIII.
 
-1. CHAP. XIIJ.
+    _ CHAP. XXIIII.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. XXV.
 
-1. CHAP. XIV.
+    _ CHAP. XXVI.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. XXVII.
 
-1. CHAP. XV.
+    _ CHAP. XXVIII.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+1. The Diet of the Diſeaſed. THE SECOND BOOKE.
 
-1. CHAP. XVI.
+    _ CHAP. I.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. II.
 
-1. CHAP. XVIJ.
+    _ CHAP. III.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. IIII.
 
-1. CHAP. XVIII.
+    _ CHAP. V.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. VI.
 
-1. CHAP. XIX.
+    _ CHAP. VII.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. VIJ.
 
-1. CHAP. XX.
+    _ CHAP. IX.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. X.
 
-1. CHAP. XXI.
+    _ CHAP. XI.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. XII.
 
-1. CHAP. XXII.
+    _ CHAP. XIII.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. XIIIJ.
 
-1. CHAP. XXIII.
+    _ CHAP. XV.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. XVJ.
 
-1. CHAP. XXIIII.
+    _ CHAP. XVIJ.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. XVIII.
 
-1. CHAP. XXV.
+    _ CHAP. XIX.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+1. The Diet of the Diſeaſed. THE THIRD BOOKE.
 
-1. CHAP. XXVI.
+    _ CHAP. I.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. II.
 
-1. CHAP. XXVII.
+    _ CHAP. IIJ.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. IIIJ.
 
-1. CHAP. XXVIII.
+    _ CHAP. V.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. VI.
 
-1. CHAP. I.
+    _ CHAP. VIJ.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. VIII.
 
-1. CHAP. II.
+    _ CHAP. IX.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. X.
 
-1. CHAP. III.
+    _ CHAP. XI.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. XIJ.
 
-1. CHAP. IIII.
+    _ CHAP. XIII.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. XIIIJ.
 
-1. CHAP. V.
+    _ CHAP. XV.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. XVI.
 
-1. CHAP. VI.
+    _ CHAP. XVIJ.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. XVIII.
 
-1. CHAP. VII.
+    _ CHAP. XIX.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. XX.
 
-1. CHAP. VIJ.
+    _ CHAP. XXI.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. XXII.
 
-1. CHAP. IX.
+    _ CHAP. XXIII.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. XXIV.
 
-1. CHAP. X.
+    _ CHAP. XXV.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. XXVI.
 
-1. CHAP. XI.
+    _ CHAP. XXVIJ.Quemadmodum Ape•l•s celeberimus o•im pictor, eum pulcherrimam illam atque admirabilem Veneris imaginem depingeret clavum fixit, quo amoto tota ſimul imago diſſolveretur: in ejus vero clavi ſumma parte •uam depenxit imaginem: ita Deus ille o•timus maximus cum elegantiſſimum hoc miidi opificium fabricaſſes, tanquam coronidem & colophonem conjecit hominem, in quo ſuam collocavit imaginem, ex cujus inſpectione ipſe er•fex agnoſceretur, ut ſi vere dicere ſas ſit humanus animus Deus quidē parvo corpuſculo concluſus videatur. Cum itaque res plurimum i•ter ſe pugnantes atque contrarias homo complectatur, recte illi ſcripſiſſe videntur, qui hominem vinculum eſſe, quo aeterna caducis necterentur aſſeverarunt, &c. Claud. Deodatus Panth. Hygiaſt lib. 1. c. 1.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. XXVIIJ.
 
-1. CHAP. XII.
+    _ CHAP. XXIX.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. XXX.
 
-1. CHAP. XIII.
+      * A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. XXXJ.
 
-1. CHAP. XIIIJ.
+    _ CHAP. XXXII.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ CHAP. XXXIII.
 
-1. CHAP. XV.
+    _ CHAP. XXXIIIJ.
 
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. XVJ.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. XVIJ.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. XVIII.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. XIX.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. I.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. II.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. IIJ.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. IIIJ.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. V.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. VI.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. VIJ.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. VIII.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. IX.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. X.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. XI.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. XIJ.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. XIII.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. XIIIJ.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. XV.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. XVI.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. XVIJ.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. XVIII.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. XIX.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. XX.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. XXI.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. XXII.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. XXIII.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. XXIV.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. XXV.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. XXVI.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. XXVIJ.Quemadmodum Ape•l•s celeberimus o•im pictor, eum pulcherrimam illam atque admirabilem Veneris imaginem depingeret clavum fixit, quo amoto tota ſimul imago diſſolveretur: in ejus vero clavi ſumma parte •uam depenxit imaginem: ita Deus ille o•timus maximus cum elegantiſſimum hoc miidi opificium fabricaſſes, tanquam coronidem & colophonem conjecit hominem, in quo ſuam collocavit imaginem, ex cujus inſpectione ipſe er•fex agnoſceretur, ut ſi vere dicere ſas ſit humanus animus Deus quidē parvo corpuſculo concluſus videatur. Cum itaque res plurimum i•ter ſe pugnantes atque contrarias homo complectatur, recte illi ſcripſiſſe videntur, qui hominem vinculum eſſe, quo aeterna caducis necterentur aſſeverarunt, &c. Claud. Deodatus Panth. Hygiaſt lib. 1. c. 1.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. XXVIIJ.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. XXIX.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. XXX.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. XXXJ.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. XXXII.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. XXXIII.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. CHAP. XXXIIIJ.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
-
-1. The Concluſion of this whole Diſcourſe.
-
-    _ A Digreſsion concerning the Weapon-ſalve, not impertinent for this place.
+    _ The Concluſion of this whole Diſcourſe.
 
 #####Back#####
-Klinike, or The diet of the diseased· Divided into three bookes. VVherein is set downe at length the
+
+1. An Alphabeticall Table of THE CONTENTS OF THIS VVHOLE DISCOVRSE, WITH relation to the page: Intr. is for Introduction.
+COurteous Reader, by reaſon of the Authours abſence, and the ſtrangeneſſe of his Character, divers f
 **Types of content**
 
   * There are 173 **verse** lines!
